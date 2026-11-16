@@ -1,0 +1,1 @@
+# vardiya-defteri-privacy
